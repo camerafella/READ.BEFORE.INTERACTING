@@ -23,6 +23,6 @@ my timezones pacific standard. my work schedule is in my strawpage
 
 
 
-spider noir yumes and haters dni. im sorry but do not glaze my king. and also i get jealous subconsciously and i dont wanna hate you while being your friend if you yume with noir. 
+spider noir yumes and haters dni. im sorry but do not hate on my king. and also i get jealous subconsciously and i dont wanna hate you while being your friend if you yume with noir. 
 
 im neither democrat or conservative. i am punk. cm punk.
