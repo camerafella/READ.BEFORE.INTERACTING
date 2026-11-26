@@ -24,3 +24,7 @@ people who cover my friends (if theyre not blocked) (even then ill try telling e
 people who have no funny bone/edgy nonchalants. pack it UP dudes!
 
 people who use the word cringe. who are you even
+
+do not traumadump on me unconsensually dude we dont know anything about eachother. also this might be mean but . what do i do?? immm not really the comfort person and i dont want to be 
+
+also if we're friends and we dont talk often j might unfriend you cuz. we dont talk,,,.
