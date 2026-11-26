@@ -1,28 +1,26 @@
 # READ.BEFORE.INTERACTING
-this for ponytown. but um the dni stuff still apply on every platform
+this for ponytown. but um the dni stuff still apply on every platform. or just general dislikes i personally dont wanna int
 
 if you're a minor do NOT be weird or suggestive with me. 
 
 if you like diddling kids.. dont talk to me dude.
 
-im mostly here to have fun n im constantly bored, so feel free to int im friendly trust.
-
-i say sum outta pocket weird stuff all the time so. if you're uncomfy then tell me.
-
 if im annoying you. please hide me. stop beratingme please theres a hide button.
 
 i dont engage in drama or arguments...
 
-i wander around constantly because ponytown boring as HELL.. feel free to come wit me and we can mess around
+spider noir yumes and haters dni. im sorry but do not hate on my king. and also i get jealous subconsciously and i dont wanna hate you while being your friend if you yume with noir.
 
-sometimes i insult people as my love language tell me if it hurts ok im sorry i love you
+--> hey dude if you only talk to me to hear yourself and make everything bout you im going to be very sad. <--
 
-i love being stupid
+kinkshaming when its like, fully consensual and sht but you just find it weird and you judge people for what they do privately
 
-my timezones pacific standard. my work schedule is in my strawpage 
+im neither democrat or conservative. i am punk. cm punk. soooo.. if your morals differ from mine i wont like you.
 
+overly rude people who dont stop even if the bit's over 
 
+people who cover my friends (if theyre not blocked) (even then ill try telling em to move)
 
-spider noir yumes and haters dni. im sorry but do not hate on my king. and also i get jealous subconsciously and i dont wanna hate you while being your friend if you yume with noir. 
+people who have no funny bone/edgy nonchalants. pack it UP dudes!
 
-im neither democrat or conservative. i am punk. cm punk.
+people who use the word cringe. who are you even
